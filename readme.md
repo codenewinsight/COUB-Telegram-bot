@@ -2,11 +2,11 @@
 
 **Link COUB:** [Click](https://t.me/coub/app?startapp=coub__marker_18871184)
 
-✅ Auto task
+- Auto task
 
-✅ Auto get new token
+- Auto get new token
 
-✅ Auto Daily Check-in
+- Auto Daily Check-in
 
 **Instructions:**
 
